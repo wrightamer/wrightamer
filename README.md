@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Kira.
+- 👀 I’m interested in hub content
+- 📫 How to reach me: spacebar.nazo@gmail.com / @wrightamer on soc. net.
